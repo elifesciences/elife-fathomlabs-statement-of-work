@@ -20,7 +20,7 @@ Fathom Labs Ltd. will commence work on 04 June 2016, with and will make best eff
 
 # Compensation 
 
-Fathom Labs Ltd. will charge their daily rate of £500. Scheduling of work will be agreed on a month by month basis.
+Fathom Labs Ltd. will receive £15000.00 from eLife Publications, Ltd., for the delivery of Version 1 of Sciencefair as spoecified under Deliverables.
 
 # Deliverables 
 
